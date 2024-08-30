@@ -1,3 +1,3 @@
 Bem vinda ao meu perfil
-meu nome é kaeny ellen souza
+sou aluna do 1A kay
 estou estudado no alura
